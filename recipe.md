@@ -1,0 +1,1 @@
+First take a glass and squeeze a cut lemon. Add a pinch of salt and then add sugar(amount depends on you). After that add regular water to fill the cup till half(or fill it completly if you don't want to use cold water). Then keep stirring till all the sugar is dissolved and add the remaining water(normal or cold). If you want you can add ice after that or just enjoy normally.
